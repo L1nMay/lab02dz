@@ -1,2 +1,1 @@
-# lab02dz
-# lab02dz
+Na zonah sha xolodno
